@@ -1,0 +1,1 @@
+# gdoujaiji.github.io
